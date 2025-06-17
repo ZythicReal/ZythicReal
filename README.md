@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @ZythicReal
-- 👀 I’m interested in Muder Drones and Geometry Dash, and i dabble in coding, music, and a bunch of other stuff. I LOVE TO DRAW LOL
+- 👀 I’m interested in Muder Drones and some video games, and i dabble in coding, music, and a bunch of other stuff. I LOVE TO DRAW LOL
 - 🌱 I’m currently learning I should learn Python but im on a Chromebook how would that even work. Gonna get a real laptop soon.
 - 💞️ I’m looking to collaborate on a game.
 - 📫 You can reach me on Discord @zythicreal
